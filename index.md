@@ -6,3 +6,9 @@ Nach dem Tod seiner Familie wird er naturgemäß zum König der Nachtinseln, jed
 seinen rechtmäßigen Platz einzunehmen. Wie sein Vater und Bruder ist er ein Todeshexer und bezieht seine Macht, 
 indem er Menschen oder Tieren das Leben raubt und ihre Lebensenergie in sich aufnimmt. Trotz seines jungen Alters 
 ist er ein ungewöhnlich starker Hexer, dessen Quelle enorme Mengen an magischer Energie aufnehmen kann.
+
+## Bla
+* llalal
+* adasda
+* rwrwef
+* asdasdasd
