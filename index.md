@@ -14,3 +14,5 @@ ist er ein ungewöhnlich starker Hexer, dessen Quelle enorme Mengen an magischer
 * asdasdasd
 
 > uuupsi
+
+<img src="https://kronen-der-allmacht.fandom.com/de/wiki/Askon_Nox?file=Askon-1.jpg"/>
